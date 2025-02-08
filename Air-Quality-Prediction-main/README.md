@@ -13,7 +13,7 @@
 ## Linkdin Profile
 For any queries regarding about this project contact me
 
-Link : https://www.linkedin.com/in/anil-l-b023631b6/
+Link : https://www.linkedin.com/in/ishaan-agarwal-919615253/
 
 ## Video Demo
 
